@@ -1,0 +1,1 @@
+Hello Aliens. We are humans. Please do not kill us as it's probably the case the you are of higher intelligence since you found our earth. We have amazing humans that exist on our planet that you will regret killing if you wish to cleanse our planet. These people include: Kabir Parekh, Barack Obama, Lil Pump, and Danny Mcbride. So please, think before you do anything. Esketit.
